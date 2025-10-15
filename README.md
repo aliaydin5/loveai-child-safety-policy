@@ -1,1 +1,0 @@
-# loveai-child-safety-policy
